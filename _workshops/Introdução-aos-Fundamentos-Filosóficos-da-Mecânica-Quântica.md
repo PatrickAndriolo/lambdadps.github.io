@@ -9,6 +9,8 @@ eventcode: jayme3
 
 **Ministrante:** [Diana Taschetto](http://lattes.cnpq.br/6654964352487407) ([Departamento de Filosofia, FFLCH-USP](http://filosofia.fflch.usp.br/))
 
+**Aulas:** [YouTube playlist](https://www.youtube.com/playlist?list=PLUtepDnpw2tNVO-yqYG-21qYOpaWrlZUq)
+
 **Horário:** 10h às 12h (BRT)
 
 **Carga Horária Total:** 8h
